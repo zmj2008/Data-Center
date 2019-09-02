@@ -21,4 +21,8 @@
 # 学习课程
 
 #### 心理学
-[变态心理学](https://pan.baidu.com/s/1WrHLnbbmNbrSWsDGvykFmA)
+[变态心理学](https://pan.baidu.com/s/1-3jmrgrD9POpVXCC15UNEQ)
+
+
+#### 机器学习
+[李宏毅机器学习(2017)]()

@@ -5,4 +5,4 @@
 
 
 # 心理学
-[变态心理学]()
+[变态心理学](https://pan.baidu.com/s/1WrHLnbbmNbrSWsDGvykFmA)

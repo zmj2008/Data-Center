@@ -1,7 +1,7 @@
 # 纪录片
 [手术两百年](https://pan.baidu.com/s/1l8c2hgXPUxRoo8sFuaua_w)  
 
-[人生一串1](https://pan.baidu.com/s/1sGHKrtGfrafnrUvZDUcLbA)/[人生一串2](https://pan.baidu.com/s/1RX2lSG8AKsXj4oLs7rYBxQ)
+[人生一串1](https://pan.baidu.com/s/1DyfGekXg_dtM4zBVsFw0KQ)/[人生一串2](https://pan.baidu.com/s/1RX2lSG8AKsXj4oLs7rYBxQ)
 
 
 

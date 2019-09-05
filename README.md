@@ -1,3 +1,13 @@
+
+# 学习课程
+
+#### 心理学
+[变态心理学](https://pan.baidu.com/s/1-3jmrgrD9POpVXCC15UNEQ)
+
+#### 机器学习
+[李宏毅机器学习(2017)](https://pan.baidu.com/s/1rgmezyvw68i3XxNwS8gqig)
+
+
 # 纪录片
 [手术两百年](https://pan.baidu.com/s/1l8c2hgXPUxRoo8sFuaua_w)  
 
@@ -18,11 +28,6 @@
 
 [悲惨世界十周年纪念音乐会](https://pan.baidu.com/s/1Jc4A_EQfbWkjScfv5mTXBg)/[悲惨世界二十五周年纪念音乐会](https://pan.baidu.com/s/1-iWdByHnpEBdU9U8Vtqk5A)/[电影悲惨世界](https://pan.baidu.com/s/1FakP8QzB9FXJjO4eea4gcA)
 
-# 学习课程
 
-#### 心理学
-[变态心理学](https://pan.baidu.com/s/1-3jmrgrD9POpVXCC15UNEQ)
-
-
-#### 机器学习
-[李宏毅机器学习(2017)](https://pan.baidu.com/s/1rgmezyvw68i3XxNwS8gqig)
+# 影视
+[魔道祖师之陈情令]()

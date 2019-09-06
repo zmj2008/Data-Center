@@ -35,3 +35,5 @@
 [小欢喜](https://pan.baidu.com/s/1ZQmEzuiWg7h15Y0mPhfsGw)
 
 [九州缥缈录](https://pan.baidu.com/s/1_vIxhLUhCI1-SVg-svYs3A)
+
+[德鲁纳酒店](https://pan.baidu.com/s/19Y2fY5EP7q_p9F8DfObl0w)

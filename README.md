@@ -30,7 +30,7 @@
 
 
 # 剧集
-[魔道祖师之陈情令]()
+[魔道祖师之陈情令](https://pan.baidu.com/s/1ddZ1tLjj4bnd9qAX1UqYNg)
 
 [小欢喜](https://pan.baidu.com/s/1ZQmEzuiWg7h15Y0mPhfsGw)
 

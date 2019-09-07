@@ -37,3 +37,7 @@
 [九州缥缈录](https://pan.baidu.com/s/1_vIxhLUhCI1-SVg-svYs3A)
 
 [德鲁纳酒店](https://pan.baidu.com/s/19Y2fY5EP7q_p9F8DfObl0w)
+
+# 短视频  庆祝中国成立70周年系列-中国24小时.地方偏
+
+[山东](https://pan.baidu.com/s/11A28Pi78vRjnP02VuzBINQ)  [陕西](https://pan.baidu.com/s/1kvt6XSEJqG1bN64BLIgSfA)  [黑龙江](https://pan.baidu.com/s/1N_TrMqz3OkL_X3mPynsCwg)  [江苏](https://pan.baidu.com/s/1y0WewPkTXwH1ZtDGvrUZBQ)  [吉林](https://pan.baidu.com/s/1wpjJa0WIDqERh3rFU9Y0zA)  [湖北](https://pan.baidu.com/s/1wlFLbUj3t35JiB7u0VItaQ)  [辽宁](https://pan.baidu.com/s/1S--Vunucsy1Kc1nnHR-HTwhttps://pan.baidu.com/s/1S--Vunucsy1Kc1nnHR-HTw)  [江西](https://pan.baidu.com/s/1iD32aWhdZgRuiwNIcPYijQ)  [河北](https://pan.baidu.com/s/1zy8W0K2fY8717trCrDtqQQ)  [福建](https://pan.baidu.com/s/1RRPBfaCQv2R0__7V5FYSXQ)  [四川](https://pan.baidu.com/s/1g58MRERsCjLVB04ziRdJkw) 

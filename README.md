@@ -24,7 +24,10 @@
 
 [哈姆雷特](https://pan.baidu.com/s/1ivHpno-pkbZkwXcBJQG3iw)
 
-[胡桃匣子](https://pan.baidu.com/s/1vW_Y6aWQRRDuvtIo3lXYCw)
+[胡桃夹子](https://pan.baidu.com/s/1vW_Y6aWQRRDuvtIo3lXYCw)
+
+胡桃夹子 是柴可夫斯基编写的一个芭蕾舞剧。根据霍夫曼的一部叫作《胡桃夹子与老鼠王》的故事改编。舞剧的音乐充满了单纯而神秘的神话色彩，具有强烈的儿童音乐特色。圣诞节，女孩玛丽得到一只胡桃夹子。夜晚，她梦见这胡桃夹子变成了一位王子，领着她的一群玩具同老鼠兵作战。后来又把她带到果酱山，受到糖果仙子的欢迎，享受了一次玩具、舞蹈和盛宴的快乐。
+
 
 [悲惨世界十周年纪念音乐会](https://pan.baidu.com/s/1Jc4A_EQfbWkjScfv5mTXBg)/[悲惨世界二十五周年纪念音乐会](https://pan.baidu.com/s/1-iWdByHnpEBdU9U8Vtqk5A)/[电影悲惨世界](https://pan.baidu.com/s/1FakP8QzB9FXJjO4eea4gcA)
 

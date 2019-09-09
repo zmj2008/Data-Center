@@ -47,5 +47,6 @@
 
 
 # 动漫 
-[龙珠超:布罗利](http://18991493.d.yyupload.com/down/18991493/龙珠超：布罗利Dragon.Ball.Super.Broly.2018.1080p.mkv)
+[龙珠超:布罗利](龙珠超：布罗利Dragon.Ball.Super.Broly.2018.1080p.mkv: https://u18991493.ctfile.com/fs/18991493-397158973
+)
 

@@ -30,7 +30,7 @@
 
 
 [悲惨世界十周年纪念音乐会](https://pan.baidu.com/s/1Jc4A_EQfbWkjScfv5mTXBg)/[悲惨世界二十五周年纪念音乐会](https://pan.baidu.com/s/1-iWdByHnpEBdU9U8Vtqk5A)/[电影悲惨世界](https://pan.baidu.com/s/1FakP8QzB9FXJjO4eea4gcA)
-
+悲惨世界 是由法国作家维克多·雨果在1862年发表的一部长篇小说，其内容涵盖了拿破仑战争和之后的十几年的时间。故事的主线围绕主人公土伦苦刑犯冉·阿让（Jean Valjean）的个人经历，融进了法国的历史、革命、战争、道德哲学、法律、正义、宗教信仰。该作多次被改编演绎成影视作品。
 
 # 剧集
 [魔道祖师之陈情令](https://pan.baidu.com/s/1ddZ1tLjj4bnd9qAX1UqYNg)
@@ -46,5 +46,6 @@
 [山东](https://pan.baidu.com/s/17HIcamsuyk-_t87xxq32Dg)  [陕西](https://pan.baidu.com/s/1yIjuwGCqv2dWk9HRHQkW-A)  [黑龙江](https://pan.baidu.com/s/1K12987K8CWT7I5sIGspb9Q)  [江苏](https://pan.baidu.com/s/1YN8bdD8uYlqOs3inCku3sQ)  [吉林](https://pan.baidu.com/s/1q-hlZSwUjX1sI6w2n7PnDA)  [湖北](https://pan.baidu.com/s/11YsOOoby_MhhGodro6PHVA)  [辽宁](https://pan.baidu.com/s/1Q1EX3RuHCHuFslO6BJ1rtg)  [江西](https://pan.baidu.com/s/1FZG4rXtqqjSnDmUHPS_g8w)  [河北](https://pan.baidu.com/s/1tRvS0zkNLhlBEkv7W3TGTA)  [福建](https://pan.baidu.com/s/16VfEHk1PjJHtak8T0yWXXg)  [四川](https://pan.baidu.com/s/1ebTzhz8Z1kaTsKeyodxmoA) 
 
 
+# 动漫 
+[龙珠超:布罗利](http://18991493.d.yyupload.com/down/18991493/龙珠超：布罗利Dragon.Ball.Super.Broly.2018.1080p.mkv)
 
-![](https://i.loli.net/2019/09/07/2ECNu9X6vbixdfS.jpg)

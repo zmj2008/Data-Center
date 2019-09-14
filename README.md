@@ -38,6 +38,7 @@
 
 
 [悲惨世界十周年纪念音乐会](https://pan.baidu.com/s/1Jc4A_EQfbWkjScfv5mTXBg)/[悲惨世界二十五周年纪念音乐会](https://pan.baidu.com/s/1-iWdByHnpEBdU9U8Vtqk5A)/[电影悲惨世界](https://pan.baidu.com/s/1FakP8QzB9FXJjO4eea4gcA)
+
 悲惨世界 是由法国作家维克多·雨果在1862年发表的一部长篇小说，其内容涵盖了拿破仑战争和之后的十几年的时间。故事的主线围绕主人公土伦苦刑犯冉·阿让（Jean Valjean）的个人经历，融进了法国的历史、革命、战争、道德哲学、法律、正义、宗教信仰。该作多次被改编演绎成影视作品。
 
 # 剧集

@@ -7,6 +7,13 @@
 #### 机器学习
 [李宏毅机器学习(2017)](https://pan.baidu.com/s/1rgmezyvw68i3XxNwS8gqig)
 
+# 软件
+[IBM SPSS Statistics 24](https://pan.baidu.com/s/13-_qvUzb346FZWbsAq-NMA)
+
+[Tableau 10.5](https://pan.baidu.com/s/1Tz5sa9BwMfkwsdMVZV1AtQ)
+
+# 小程序
+[中国象棋](https://www.lanzous.com/i66bmbg)
 
 # 纪录片
 [手术两百年](https://pan.baidu.com/s/1l8c2hgXPUxRoo8sFuaua_w)  

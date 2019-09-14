@@ -49,7 +49,6 @@
 
 [德鲁纳酒店](https://pan.baidu.com/s/19Y2fY5EP7q_p9F8DfObl0w)
 
-[飞虎之雷霆极战 2019](https://pan.baidu.com/s/1RIgA6j-IDczswa-sTeik6A)
 
 # 中国24小时.地方篇短视频
 
@@ -59,7 +58,6 @@
 # 动漫 
 [龙珠超:布罗利](https://u18991493.ctfile.com/fs/18991493-397158973)
 
-[哆啦A梦 伴你我同行]()
 
 # 游戏
 [模拟人生4](https://pan.baidu.com/s/14gWgTtsUrJEx5HgyyoJKjw)

@@ -7,6 +7,9 @@
 #### 机器学习
 [李宏毅机器学习(2017)](https://pan.baidu.com/s/1rgmezyvw68i3XxNwS8gqig)
 
+# 演讲
+[白岩松2019最新演讲 《白说：读书、阅人、知时》](https://pan.baidu.com/s/1NUUOUWOE_T1ygtGNOQZPUA)
+
 # 软件
 [IBM SPSS Statistics 24](https://pan.baidu.com/s/13-_qvUzb346FZWbsAq-NMA)
 

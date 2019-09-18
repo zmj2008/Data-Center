@@ -10,7 +10,7 @@
 # 演讲
 白岩松
 
-[2019最新演讲 《白说：读书、阅人、知时》](https://pan.baidu.com/s/1CZOgwPTSweJs_-XsVPkTRg)
+[2019最新《白说：读书、阅人、知时》](https://pan.baidu.com/s/1CZOgwPTSweJs_-XsVPkTRg)
 
 [一刻演讲:光阴的故事](https://pan.baidu.com/s/1vrQIla8IqfKni0_rRYeG3w)
 

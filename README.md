@@ -1,5 +1,5 @@
 
-# 学习课程
+# 课程
 
 #### 心理学
 [变态心理学](https://pan.baidu.com/s/1-3jmrgrD9POpVXCC15UNEQ)
@@ -13,6 +13,7 @@
 [2019最新《白说：读书、阅人、知时》](https://pan.baidu.com/s/1CZOgwPTSweJs_-XsVPkTRg)
 
 [一刻演讲:光阴的故事](https://pan.baidu.com/s/1vrQIla8IqfKni0_rRYeG3w)
+
 
 # 软件
 [IBM SPSS Statistics 24](https://pan.baidu.com/s/13-_qvUzb346FZWbsAq-NMA)

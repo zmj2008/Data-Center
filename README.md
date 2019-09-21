@@ -4,6 +4,8 @@
 #### 心理学
 [变态心理学](https://pan.baidu.com/s/1-3jmrgrD9POpVXCC15UNEQ)
 
+[犯罪心理揭秘：避免隐藏伤害，学会自我保护](https://pan.baidu.com/s/1k8y-Qby8LQ8MliSI4tbzWg)
+
 #### 机器学习
 [李宏毅机器学习(2017)](https://pan.baidu.com/s/1rgmezyvw68i3XxNwS8gqig)
 

@@ -16,6 +16,14 @@
 
 [一刻演讲:光阴的故事](https://pan.baidu.com/s/1vrQIla8IqfKni0_rRYeG3w)
 
+# 听书
+
+[《易中天中华史》](https://pan.baidu.com/s/1c5giKNj99OnvzT7HW_CpKQ)
+
+[《易中天品三国》](https://pan.baidu.com/s/1UDcQB_zYtz6uva7Zw-11Xg)
+
+
+
 
 # 软件
 [IBM SPSS Statistics 24](https://pan.baidu.com/s/13-_qvUzb346FZWbsAq-NMA)

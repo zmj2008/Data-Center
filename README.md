@@ -36,7 +36,9 @@
 
 [AutoCAD 2020精简版](https://pan.baidu.com/s/13ngyQlqnGa5IYwr97Dq6PQ)
 
-[赢政天下 Adobe 2019 全家桶](https://pan.baidu.com/s/1QzVSc-GJnBYB9_aNXsov-Q)
+[CCleaner专业版-更新](https://www.lanzous.com/i6c83cb)
+
+[Adobe Photoshop CC2019](https://pan.baidu.com/s/1e5X4KdcRfXJT40Ufd3akRg)
 
 
 

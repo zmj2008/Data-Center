@@ -45,7 +45,8 @@
 [中国象棋](https://www.lanzous.com/i66bmbg)
 
 # 纪录片
-#### 大陆
+
+#### CCTV
 [手术两百年](https://pan.baidu.com/s/1l8c2hgXPUxRoo8sFuaua_w)  
 
 [人生一串1](https://pan.baidu.com/s/1X1TZ9Ffh5zqFV2Ts9D4mLQ)/[人生一串2](https://pan.baidu.com/s/1AfAwLwgsSimGSLnINkLY9Q)
@@ -58,8 +59,20 @@
 
 [中国通史](https://pan.baidu.com/s/1vj92hEuet_iUpE2hJ3Z2qA)
 
+[舌尖上的中国 A Bite of China S01](https://pan.baidu.com/s/12NGl5--RcoZ6m_eosn0bNg)/[舌尖上的中国 A Bite of China S02](https://pan.baidu.com/s/1urAzrX-ZbXKdBSBP9Ge7ug)/[舌尖上的中国 A Bite of China S03](https://pan.baidu.com/s/1Omfl5ypHOsqJm4H_W6lzvQ)
 
-#### 法国
+#### BBC
+
+[蓝色星球 The Blue Planet S01]()/[蓝色星球 The Blue Planet S02]()
+
+[王朝 Dynasties S01]()
+
+[行星 The.Planets S01]()
+
+
+
+
+#### Netflix
 [主厨的餐桌第一季](https://pan.baidu.com/s/1FmDBzTMFcnBjKbnUpdtpTw)/[主厨的餐桌第二季](https://pan.baidu.com/s/1_ZKvJrHbNCHu8OMCyWQYCQ)/[主厨的餐桌第三季](https://pan.baidu.com/s/1Foa3U_Pgza46TkZLXUfbkw)/[主厨的餐桌第四季](https://pan.baidu.com/s/14k3f2Rkt9sjdXtzM1fDJsA)/[主厨的餐桌第五季](https://pan.baidu.com/s/13VJy6VkiiNr3i_fiNaF3Pw)/[主厨的餐桌第六季](https://pan.baidu.com/s/1-_mIUiXnDeLVflh891-eWQ)
 
 

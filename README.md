@@ -24,7 +24,7 @@
 
 [《易中天品三国》](https://pan.baidu.com/s/1UDcQB_zYtz6uva7Zw-11Xg)
 
-
+[赢政天下 Adobe 2019 全家桶](https://pan.baidu.com/s/1QzVSc-GJnBYB9_aNXsov-Q)
 
 
 
@@ -35,6 +35,11 @@
 [Tableau 10.5](https://pan.baidu.com/s/1Tz5sa9BwMfkwsdMVZV1AtQ)
 
 [AutoCAD 2020精简版](https://pan.baidu.com/s/13ngyQlqnGa5IYwr97Dq6PQ)
+
+
+
+
+
 
 # 小程序
 [中国象棋](https://www.lanzous.com/i66bmbg)

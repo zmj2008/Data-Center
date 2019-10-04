@@ -126,5 +126,9 @@
 
 [FateZero 第一季](https://pan.baidu.com/s/1Lfua6vnvvJYqOF2NntYQcQ)/[FateZero 第二季](https://pan.baidu.com/s/1hilnnkcZq5w7qCyKCcSE1Q)
 
+[命运-冠位指定 绝对魔兽战线 巴比伦尼亚](https://pan.baidu.com/s/10qk7fvzHz4K54qRcHvktsQ)
+
 # 游戏
 [模拟人生4](https://pan.baidu.com/s/14gWgTtsUrJEx5HgyyoJKjw)
+
+[超级机器人大战V官方中文PC版-Super.Robot.Wars.V](https://pan.baidu.com/s/1KnhI1vb_Dw9Z8_z8lMAlsg)

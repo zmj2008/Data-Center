@@ -128,7 +128,7 @@
 
 [命运-冠位指定 绝对魔兽战线 巴比伦尼亚](https://pan.baidu.com/s/10qk7fvzHz4K54qRcHvktsQ)
 
-[一拳超人 第一季]()/[一拳超人  第二季](https://pan.baidu.com/s/1dRHkF22zSUAoTUPNSuo3QA)/[一拳超人  第三季]()
+[一拳超人 第一季](https://pan.baidu.com/s/1uQXZiYjkmovoJ47KBIIQDA)/[一拳超人  第二季](https://pan.baidu.com/s/1dRHkF22zSUAoTUPNSuo3QA)/[一拳超人  第三季]()
 
 [进击的巨人  第一季]()/[进击的巨人  第二季](https://pan.baidu.com/s/1kut6NRFDWba-xVrGC7yFHg)/[进击的巨人  第三季]()
 

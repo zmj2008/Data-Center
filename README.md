@@ -135,4 +135,6 @@
 # 游戏
 [模拟人生4](https://pan.baidu.com/s/14gWgTtsUrJEx5HgyyoJKjw)
 
+[刺客信条：奥德赛 Assassin's Creed: Odyssey](https://pan.baidu.com/s/1C_vDD96dxG0ukBKjBMcVyw)
+
 [超级机器人大战V官方中文PC版-Super.Robot.Wars.V](https://pan.baidu.com/s/1KnhI1vb_Dw9Z8_z8lMAlsg)

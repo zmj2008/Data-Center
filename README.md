@@ -130,6 +130,8 @@
 
 [一拳超人 Season1]()/[一拳超人 Season2](https://pan.baidu.com/s/1dRHkF22zSUAoTUPNSuo3QA)/[一拳超人 Season3]()
 
+[进击的巨人 Season1]()/[进击的巨人 Season2](https://pan.baidu.com/s/1kut6NRFDWba-xVrGC7yFHg)/[进击的巨人 Season3]()
+
 # 游戏
 [模拟人生4](https://pan.baidu.com/s/14gWgTtsUrJEx5HgyyoJKjw)
 

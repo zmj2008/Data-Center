@@ -130,7 +130,7 @@
 
 [一拳超人 第一季](https://pan.baidu.com/s/1uQXZiYjkmovoJ47KBIIQDA)/[一拳超人  第二季](https://pan.baidu.com/s/1dRHkF22zSUAoTUPNSuo3QA)/[一拳超人  第三季]()
 
-[进击的巨人  第一季]()/[进击的巨人  第二季](https://pan.baidu.com/s/1kut6NRFDWba-xVrGC7yFHg)/[进击的巨人  第三季]()
+[进击的巨人  第一季](https://pan.baidu.com/s/1IUA7BTgT2dtK54wMUxHR_A)/[进击的巨人  第二季](https://pan.baidu.com/s/1Zui-JkAdBrta3wc93UyDtA)/[进击的巨人  第三季]()
 
 # 游戏
 [模拟人生4](https://pan.baidu.com/s/14gWgTtsUrJEx5HgyyoJKjw)

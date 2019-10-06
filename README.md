@@ -117,7 +117,7 @@
 
 [劇場版 名探偵コナン](https://pan.baidu.com/s/13pW973xP4IqhsqGYmf5C1A)
 
-圣斗士星矢  [黄金魂篇]()、[ 冥王黑帝斯十二宮篇](https://pan.baidu.com/s/1GTADjo2-eSnuwS-hArHlLg)
+[灌篮高手 SlamDunk](https://pan.baidu.com/s/1XftxPS21-RDggJhOq9etdA)
 
 [FateZero 第一季](https://pan.baidu.com/s/1Lfua6vnvvJYqOF2NntYQcQ)/[FateZero 第二季](https://pan.baidu.com/s/1hilnnkcZq5w7qCyKCcSE1Q)
 

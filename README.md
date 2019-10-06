@@ -115,7 +115,7 @@
 
 [哆啦A梦 伴我随行](https://pan.baidu.com/s/1rcjoincmqnuPUvXlc-KAaA)
 
-[劇場版 名探偵コナン](https://pan.baidu.com/s/13pW973xP4IqhsqGYmf5C1A)
+[名探偵コナンTV]()、[名探偵コナン 劇場版](https://pan.baidu.com/s/13pW973xP4IqhsqGYmf5C1A)
 
 [灌篮高手 SlamDunk](https://pan.baidu.com/s/1XftxPS21-RDggJhOq9etdA)
 

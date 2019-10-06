@@ -117,6 +117,8 @@
 
 [劇場版 名探偵コナン](https://pan.baidu.com/s/13pW973xP4IqhsqGYmf5C1A)
 
+圣斗士星矢  [黄金魂篇]()、[ 冥王黑帝斯十二宮篇](https://pan.baidu.com/s/1GTADjo2-eSnuwS-hArHlLg)
+
 [FateZero 第一季](https://pan.baidu.com/s/1Lfua6vnvvJYqOF2NntYQcQ)/[FateZero 第二季](https://pan.baidu.com/s/1hilnnkcZq5w7qCyKCcSE1Q)
 
 [命运-冠位指定 绝对魔兽战线 巴比伦尼亚](https://pan.baidu.com/s/10qk7fvzHz4K54qRcHvktsQ)

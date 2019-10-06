@@ -111,9 +111,9 @@
 
 
 # 动漫 
-[龙珠超:布罗利](https://pan.baidu.com/s/1D1-pYvtTKwzYGd2c2his4w)
+[龙珠超:布罗利](https://pan.baidu.com/s/1lx_xbIAf3Swqmrfhqg_dag)
 
-[哆啦A梦 伴我随行](https://pan.baidu.com/s/1rcjoincmqnuPUvXlc-KAaA)
+[哆啦A梦 伴我随行](https://pan.baidu.com/s/1kn47-25QGGKY8KS53kO15A)
 
 [名探偵コナンTV]()、[名探偵コナン 劇場版](https://pan.baidu.com/s/13pW973xP4IqhsqGYmf5C1A)
 

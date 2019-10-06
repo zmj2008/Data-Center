@@ -60,7 +60,7 @@
 
 [中国通史](https://pan.baidu.com/s/1vj92hEuet_iUpE2hJ3Z2qA)
 
-[舌尖上的中国 A Bite of China S01](https://pan.baidu.com/s/12NGl5--RcoZ6m_eosn0bNg)/[舌尖上的中国 A Bite of China S02](https://pan.baidu.com/s/1urAzrX-ZbXKdBSBP9Ge7ug)/[舌尖上的中国 A Bite of China S03](https://pan.baidu.com/s/1Omfl5ypHOsqJm4H_W6lzvQ)
+[舌尖上的中国 S01](https://pan.baidu.com/s/12NGl5--RcoZ6m_eosn0bNg)/[舌尖上的中国 S02](https://pan.baidu.com/s/1urAzrX-ZbXKdBSBP9Ge7ug)/[舌尖上的中国 S03](https://pan.baidu.com/s/1Omfl5ypHOsqJm4H_W6lzvQ)
 
 #### BBC
 
@@ -72,7 +72,7 @@
 
 
 #### Netflix
-[主厨的餐桌第一季](https://pan.baidu.com/s/1FmDBzTMFcnBjKbnUpdtpTw)/[主厨的餐桌第二季](https://pan.baidu.com/s/1_ZKvJrHbNCHu8OMCyWQYCQ)/[主厨的餐桌第三季](https://pan.baidu.com/s/1Foa3U_Pgza46TkZLXUfbkw)/[主厨的餐桌第四季](https://pan.baidu.com/s/14k3f2Rkt9sjdXtzM1fDJsA)/[主厨的餐桌第五季](https://pan.baidu.com/s/13VJy6VkiiNr3i_fiNaF3Pw)/[主厨的餐桌第六季](https://pan.baidu.com/s/1-_mIUiXnDeLVflh891-eWQ)
+[主厨的餐桌 S01](https://pan.baidu.com/s/1FmDBzTMFcnBjKbnUpdtpTw)/[主厨的餐桌 S02](https://pan.baidu.com/s/1_ZKvJrHbNCHu8OMCyWQYCQ)/[主厨的餐桌 S03](https://pan.baidu.com/s/1Foa3U_Pgza46TkZLXUfbkw)/[主厨的餐桌S04](https://pan.baidu.com/s/14k3f2Rkt9sjdXtzM1fDJsA)/[主厨的餐桌 S05](https://pan.baidu.com/s/13VJy6VkiiNr3i_fiNaF3Pw)/[主厨的餐桌 S06](https://pan.baidu.com/s/1-_mIUiXnDeLVflh891-eWQ)
 
 
 # 芭蕾舞
@@ -121,13 +121,13 @@
 
 [全职猎人 TV](https://pan.baidu.com/s/1IKHa0Y6-WBT2wLEw-LkwBQ)、[全职猎人 剧场](https://pan.baidu.com/s/1s7oau-y4ylao11Zi-Mf98w)
 
-[FateZero 第一季](https://pan.baidu.com/s/1Lfua6vnvvJYqOF2NntYQcQ)/[FateZero 第二季](https://pan.baidu.com/s/1hilnnkcZq5w7qCyKCcSE1Q)
+[FateZero S01](https://pan.baidu.com/s/1Lfua6vnvvJYqOF2NntYQcQ)/[FateZero S02](https://pan.baidu.com/s/1hilnnkcZq5w7qCyKCcSE1Q)
 
 [命运-冠位指定 绝对魔兽战线 巴比伦尼亚](https://pan.baidu.com/s/10qk7fvzHz4K54qRcHvktsQ)
 
-[一拳超人 第一季](https://pan.baidu.com/s/1uQXZiYjkmovoJ47KBIIQDA)/[一拳超人  第二季](https://pan.baidu.com/s/1dRHkF22zSUAoTUPNSuo3QA)/[一拳超人  第三季]()
+[一拳超人 S01](https://pan.baidu.com/s/1uQXZiYjkmovoJ47KBIIQDA)/[一拳超人 S02](https://pan.baidu.com/s/1dRHkF22zSUAoTUPNSuo3QA)/[一拳超人  S03]()
 
-[进击的巨人  第一季](https://pan.baidu.com/s/1IUA7BTgT2dtK54wMUxHR_A)/[进击的巨人  第二季](https://pan.baidu.com/s/1Zui-JkAdBrta3wc93UyDtA)/[进击的巨人  第三季](https://pan.baidu.com/s/1ueoxDpXGx5ERCdrTUHP7Hg)
+[进击的巨人 S01](https://pan.baidu.com/s/1IUA7BTgT2dtK54wMUxHR_A)/[进击的巨人 S02](https://pan.baidu.com/s/1Zui-JkAdBrta3wc93UyDtA)/[进击的巨人 S03](https://pan.baidu.com/s/1ueoxDpXGx5ERCdrTUHP7Hg)
 
 # 游戏
 [模拟人生4](https://pan.baidu.com/s/14gWgTtsUrJEx5HgyyoJKjw)

@@ -116,6 +116,8 @@
 
 [名探偵コナンTV]()、[名探偵コナン 劇場版](https://pan.baidu.com/s/13pW973xP4IqhsqGYmf5C1A)
 
+[碧蓝航线AzurLane](https://pan.baidu.com/s/1_CS1uM48inGiWl9zl7FKoQ)
+
 [灌篮高手 SlamDunk](https://pan.baidu.com/s/1XftxPS21-RDggJhOq9etdA)
 
 [全职猎人 TV](https://pan.baidu.com/s/1IKHa0Y6-WBT2wLEw-LkwBQ)、[全职猎人 剧场](https://pan.baidu.com/s/1s7oau-y4ylao11Zi-Mf98w)

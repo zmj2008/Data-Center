@@ -118,7 +118,7 @@
 
 [灌篮高手 SlamDunk](https://pan.baidu.com/s/1XftxPS21-RDggJhOq9etdA)
 
-[海贼王 TV](https://pan.baidu.com/s/1zOpJtSXpdwJKamVlk-FSxw)、[海贼王 剧场]()
+[海贼王 TV](https://pan.baidu.com/s/1QFe5fRKMFh0YCNNPZn0uUA)、[海贼王 剧场]()
 
 [全职猎人 TV](https://pan.baidu.com/s/1IKHa0Y6-WBT2wLEw-LkwBQ)、[全职猎人 剧场](https://pan.baidu.com/s/1s7oau-y4ylao11Zi-Mf98w)
 

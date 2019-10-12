@@ -118,6 +118,8 @@
 
 [灌篮高手 SlamDunk](https://pan.baidu.com/s/1XftxPS21-RDggJhOq9etdA)
 
+[钢の錬金术师](https://pan.baidu.com/s/1Sk90ItloaGcVGgcgvYGkMA)
+
 [全职猎人 TV](https://pan.baidu.com/s/1IKHa0Y6-WBT2wLEw-LkwBQ)、[全职猎人 剧场](https://pan.baidu.com/s/1s7oau-y4ylao11Zi-Mf98w)
 
 [FateZero S01](https://pan.baidu.com/s/1Lfua6vnvvJYqOF2NntYQcQ)/[FateZero S02](https://pan.baidu.com/s/1hilnnkcZq5w7qCyKCcSE1Q)
@@ -127,6 +129,8 @@
 [一拳超人 S01](https://pan.baidu.com/s/1uQXZiYjkmovoJ47KBIIQDA)/[一拳超人 S02](https://pan.baidu.com/s/1dRHkF22zSUAoTUPNSuo3QA)/[一拳超人  S03]()
 
 [进击的巨人 S01](https://pan.baidu.com/s/1IUA7BTgT2dtK54wMUxHR_A)/[进击的巨人 S02](https://pan.baidu.com/s/1Zui-JkAdBrta3wc93UyDtA)/[进击的巨人 S03](https://pan.baidu.com/s/1ueoxDpXGx5ERCdrTUHP7Hg)
+
+
 
 # 游戏
 [模拟人生4](https://pan.baidu.com/s/14gWgTtsUrJEx5HgyyoJKjw)

@@ -60,6 +60,10 @@
 
 [中国通史](https://pan.baidu.com/s/1vj92hEuet_iUpE2hJ3Z2qA)
 
+水果传[第一季](https://pan.baidu.com/s/1th-3mzxv2gfmr7CDTnAiuA&shfl=sharepset)、[第二季](https://pan.baidu.com/s/1YMu74wEZMx-zqTSOk39k2A&shfl=sharepset)
+
+[激荡1978--2008](https://pan.baidu.com/s/14R5GlXiYN-H8kk_oFeKc2g&shfl=sharepset)
+
 [舌尖上的中国 S01](https://pan.baidu.com/s/12NGl5--RcoZ6m_eosn0bNg)/[舌尖上的中国 S02](https://pan.baidu.com/s/1urAzrX-ZbXKdBSBP9Ge7ug)/[舌尖上的中国 S03](https://pan.baidu.com/s/1Omfl5ypHOsqJm4H_W6lzvQ)
 
 #### BBC

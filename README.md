@@ -124,7 +124,11 @@
 
 [钢の錬金术师](https://pan.baidu.com/s/1Sk90ItloaGcVGgcgvYGkMA)
 
+妖精的尾巴[Fairy Tail ZERO](https://pan.baidu.com/s/1m3IF5tQLUilO4cuSwPhcNA&shfl=sharepset)、[Fairy Tail 2009]()、[Fairy Tail 2014]()
+
 [全职猎人 TV](https://pan.baidu.com/s/1IKHa0Y6-WBT2wLEw-LkwBQ)、[全职猎人 剧场](https://pan.baidu.com/s/1s7oau-y4ylao11Zi-Mf98w)
+
+海贼王 ONE PIECE[TV](https://pan.baidu.com/s/1H9LhY9dQIGwmGG-F_nhkOg&shfl=sharepset)、[剧场](https://pan.baidu.com/s/1wXIrAEu5Mgufe-dq7nTUoA&shfl=sharepset)
 
 [FateZero S01](https://pan.baidu.com/s/1Lfua6vnvvJYqOF2NntYQcQ)/[FateZero S02](https://pan.baidu.com/s/1hilnnkcZq5w7qCyKCcSE1Q)
 

@@ -26,9 +26,9 @@
 
 
 # 访谈
-圆桌派[第一季](https://pan.baidu.com/s/17DphRXrLVOBrPlkX0mCLCw&shfl=sharepset)、[第二季](https://pan.baidu.com/s/13BI-KCtiWSR5PdvRouCtgg&shfl=sharepset)、[第三季](https://pan.baidu.com/s/1_cAKj0YlvrvtmoO325GEYA&shfl=sharepset)
+圆桌派[S01](https://pan.baidu.com/s/17DphRXrLVOBrPlkX0mCLCw&shfl=sharepset)、[S02](https://pan.baidu.com/s/13BI-KCtiWSR5PdvRouCtgg&shfl=sharepset)、[S03](https://pan.baidu.com/s/1_cAKj0YlvrvtmoO325GEYA&shfl=sharepset)
 
-梦想改造家[第一季]()、[第二季]()、[第三季]()
+梦想改造家[S01]()、[S02]()、[S03]()、[S04]()、[S05](https://pan.baidu.com/s/1xYf-V7tjMH8R04H685_u3g&shfl=sharepset)、[S06](https://pan.baidu.com/s/1SAQt7H24n2arjsCg-HynIA&shfl=sharepset)
 
 
 # 软件
@@ -62,7 +62,7 @@
 
 [中国通史](https://pan.baidu.com/s/1vj92hEuet_iUpE2hJ3Z2qA)
 
-水果传[第一季](https://pan.baidu.com/s/1th-3mzxv2gfmr7CDTnAiuA&shfl=sharepset)、[第二季](https://pan.baidu.com/s/1YMu74wEZMx-zqTSOk39k2A&shfl=sharepset)
+水果传[S01](https://pan.baidu.com/s/1th-3mzxv2gfmr7CDTnAiuA&shfl=sharepset)、[S02](https://pan.baidu.com/s/1YMu74wEZMx-zqTSOk39k2A&shfl=sharepset)
 
 [激荡1978--2008](https://pan.baidu.com/s/14R5GlXiYN-H8kk_oFeKc2g&shfl=sharepset)
 
@@ -132,13 +132,13 @@
 
 海贼王 ONE PIECE[TV](https://pan.baidu.com/s/1H9LhY9dQIGwmGG-F_nhkOg&shfl=sharepset)、[剧场](https://pan.baidu.com/s/1wXIrAEu5Mgufe-dq7nTUoA&shfl=sharepset)
 
-[FateZero S01](https://pan.baidu.com/s/1Lfua6vnvvJYqOF2NntYQcQ)/[FateZero S02](https://pan.baidu.com/s/1hilnnkcZq5w7qCyKCcSE1Q)
+FateZero[S01](https://pan.baidu.com/s/1Lfua6vnvvJYqOF2NntYQcQ)/[S02](https://pan.baidu.com/s/1hilnnkcZq5w7qCyKCcSE1Q)
 
 [命运-冠位指定 绝对魔兽战线 巴比伦尼亚](https://pan.baidu.com/s/10qk7fvzHz4K54qRcHvktsQ)
 
-[一拳超人 S01](https://pan.baidu.com/s/1uQXZiYjkmovoJ47KBIIQDA)/[一拳超人 S02](https://pan.baidu.com/s/1dRHkF22zSUAoTUPNSuo3QA)/[一拳超人  S03]()
+一拳超人[S01](https://pan.baidu.com/s/1uQXZiYjkmovoJ47KBIIQDA)/[S02](https://pan.baidu.com/s/1dRHkF22zSUAoTUPNSuo3QA)/[S03]()
 
-[进击的巨人 S01](https://pan.baidu.com/s/1IUA7BTgT2dtK54wMUxHR_A)/[进击的巨人 S02](https://pan.baidu.com/s/1Zui-JkAdBrta3wc93UyDtA)/[进击的巨人 S03](https://pan.baidu.com/s/1ueoxDpXGx5ERCdrTUHP7Hg)
+进击的巨人[S01](https://pan.baidu.com/s/1IUA7BTgT2dtK54wMUxHR_A)/[S02](https://pan.baidu.com/s/1Zui-JkAdBrta3wc93UyDtA)/[S03](https://pan.baidu.com/s/1ueoxDpXGx5ERCdrTUHP7Hg)
 
 
 
@@ -147,4 +147,4 @@
 
 [刺客信条：奥德赛 Assassin's Creed: Odyssey](https://pan.baidu.com/s/1C_vDD96dxG0ukBKjBMcVyw)
 
-[超级机器人大战V官方中文PC版-Super.Robot.Wars.V](https://pan.baidu.com/s/1KnhI1vb_Dw9Z8_z8lMAlsg)
+

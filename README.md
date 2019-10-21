@@ -137,7 +137,7 @@ FateZero[S01](https://pan.baidu.com/s/1Lfua6vnvvJYqOF2NntYQcQ)/[S02](https://pan
 
 [命运-冠位指定 绝对魔兽战线 巴比伦尼亚](https://pan.baidu.com/s/10qk7fvzHz4K54qRcHvktsQ)
 
-[宠物小精灵/精灵宝可梦 太阳&月亮]()
+[宠物小精灵/精灵宝可梦 太阳&月亮](https://pan.baidu.com/s/19mGcTHYau4L8Vc-Luy1Vyg&shfl=sharepset)
 
 一拳超人[S01](https://pan.baidu.com/s/1uQXZiYjkmovoJ47KBIIQDA)/[S02](https://pan.baidu.com/s/1dRHkF22zSUAoTUPNSuo3QA)/[S03]()
 

@@ -32,18 +32,6 @@
 梦想改造家[S01]()/[S02]()/[S03]()/[S04]()/[S05](https://pan.baidu.com/s/1xYf-V7tjMH8R04H685_u3g&shfl=sharepset)/[S06](https://pan.baidu.com/s/1SAQt7H24n2arjsCg-HynIA&shfl=sharepset)
 
 
-# 软件
-[IBM SPSS Statistics 24](https://pan.baidu.com/s/13-_qvUzb346FZWbsAq-NMA)
-
-[Tableau 10.5](https://pan.baidu.com/s/1Tz5sa9BwMfkwsdMVZV1AtQ)
-
-[AutoCAD 2020精简版](https://pan.baidu.com/s/13ngyQlqnGa5IYwr97Dq6PQ)
-
-[CCleaner专业版-更新](https://www.lanzous.com/i6c83cb)
-
-[Adobe Photoshop CC2019](https://pan.baidu.com/s/1e5X4KdcRfXJT40Ufd3akRg)
-
-
 
 # 小程序
 [中国象棋](https://www.lanzous.com/i66bmbg)
@@ -147,9 +135,6 @@ FateZero[S01](https://pan.baidu.com/s/1Lfua6vnvvJYqOF2NntYQcQ)/[S02](https://pan
 
 
 
-# 游戏
-[模拟人生4](https://pan.baidu.com/s/14gWgTtsUrJEx5HgyyoJKjw)
 
-[刺客信条：奥德赛 Assassin's Creed: Odyssey](https://pan.baidu.com/s/1C_vDD96dxG0ukBKjBMcVyw)
 
 

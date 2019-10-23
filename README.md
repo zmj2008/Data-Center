@@ -11,8 +11,8 @@
 [李宏毅机器学习(2017)](https://pan.baidu.com/s/1rgmezyvw68i3XxNwS8gqig)
 
 # 演讲
+百度网盘账号（x04680126）
 白岩松
-
 
 [《白说：读书、阅人、知时》](https://pan.baidu.com/s/1CZOgwPTSweJs_-XsVPkTRg)
 
@@ -28,6 +28,7 @@
 
 
 # 访谈
+百度网盘账号（x04680126）
 圆桌派[S01](https://pan.baidu.com/s/17DphRXrLVOBrPlkX0mCLCw&shfl=sharepset)/[S02](https://pan.baidu.com/s/13BI-KCtiWSR5PdvRouCtgg&shfl=sharepset)/[S03](https://pan.baidu.com/s/1_cAKj0YlvrvtmoO325GEYA&shfl=sharepset)
 
 梦想改造家[S01]()/[S02]()/[S03]()/[S04]()/[S05](https://pan.baidu.com/s/1xYf-V7tjMH8R04H685_u3g&shfl=sharepset)/[S06](https://pan.baidu.com/s/1SAQt7H24n2arjsCg-HynIA&shfl=sharepset)
@@ -35,9 +36,11 @@
 
 
 # 小程序
+
 [中国象棋](https://www.lanzous.com/i66bmbg)
 
 # 纪录片
+百度网盘账号（x04680126）
 
 #### CCTV
 [手术两百年](https://pan.baidu.com/s/1l8c2hgXPUxRoo8sFuaua_w)  
@@ -72,6 +75,8 @@
 
 
 # 芭蕾舞
+百度网盘账号（x04680126）
+
 [2013 马林斯基大剧院 -天鹅湖](https://pan.baidu.com/s/1Uh_t0Oq6S46_SOHJc8mnXg)
 
 [2013 莫斯科大剧院-仙女](https://pan.baidu.com/s/13ROGIG0QH-6flye1hOT2qA)
@@ -90,6 +95,8 @@
 悲惨世界 是由法国作家维克多·雨果在1862年发表的一部长篇小说，其内容涵盖了拿破仑战争和之后的十几年的时间。故事的主线围绕主人公土伦苦刑犯冉·阿让（Jean Valjean）的个人经历，融进了法国的历史、革命、战争、道德哲学、法律、正义、宗教信仰。该作多次被改编演绎成影视作品。
 
 # 剧集
+百度网盘账号（x04680126）
+
 [魔道祖师之陈情令](https://pan.baidu.com/s/1ddZ1tLjj4bnd9qAX1UqYNg)
 
 [小欢喜](https://pan.baidu.com/s/1ZQmEzuiWg7h15Y0mPhfsGw)
@@ -102,11 +109,13 @@
 
 
 # 中国24小时
+百度网盘账号（x04680126）
 
 [山东](https://pan.baidu.com/s/17HIcamsuyk-_t87xxq32Dg)  [陕西](https://pan.baidu.com/s/1yIjuwGCqv2dWk9HRHQkW-A)  [黑龙江](https://pan.baidu.com/s/1K12987K8CWT7I5sIGspb9Q)  [江苏](https://pan.baidu.com/s/1YN8bdD8uYlqOs3inCku3sQ)  [吉林](https://pan.baidu.com/s/1q-hlZSwUjX1sI6w2n7PnDA)  [湖北](https://pan.baidu.com/s/11YsOOoby_MhhGodro6PHVA)  [辽宁](https://pan.baidu.com/s/1Q1EX3RuHCHuFslO6BJ1rtg)  [江西](https://pan.baidu.com/s/1FZG4rXtqqjSnDmUHPS_g8w)  [河北](https://pan.baidu.com/s/1tRvS0zkNLhlBEkv7W3TGTA)  [福建](https://pan.baidu.com/s/16VfEHk1PjJHtak8T0yWXXg)  [四川](https://pan.baidu.com/s/1ebTzhz8Z1kaTsKeyodxmoA)  [云南](https://pan.baidu.com/s/1h3pVLFsXWARwyZ3zdQd0AQ)  [河南](https://pan.baidu.com/s/197ric9lI0-xh7rKuezZTVw)  [贵州](https://pan.baidu.com/s/1InJr2VkqXr48WkHh42QIcA)  [湖南](https://pan.baidu.com/s/1GiIo-lELD_eAxmDz7U-D9g)  [甘肃](https://pan.baidu.com/s/1TxHZur_24-vq-ovb6HEoQw)  [浙江](https://pan.baidu.com/s/1vl0KaXQSXqMIZZW2UQzt0Q)  [内蒙古](https://pan.baidu.com/s/1BGxZgG7pNU1_w8CwIDSFAw)[广东](https://pan.baidu.com/s/1Mh_lTrwO7dOiAtOSmtFAmw)  [北京](https://pan.baidu.com/s/14yxduztq3rJdDM63P3RxcQ)  [上海](https://pan.baidu.com/s/12FGYYGSDm2Al01iICZoc1Q)
 
 
-# 动漫 
+# 动漫1
+百度网盘账号（x04680126）
 
 [哆啦A梦 伴我随行](https://pan.baidu.com/s/1eO9TQESPPW26hJ_j0_2D4A)
 

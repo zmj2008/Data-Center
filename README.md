@@ -154,8 +154,14 @@ FateZero[S01](https://pan.baidu.com/s/1Lfua6vnvvJYqOF2NntYQcQ)/[S02](https://pan
 
 进击的巨人[S01](https://pan.baidu.com/s/1IUA7BTgT2dtK54wMUxHR_A)/[S02](https://pan.baidu.com/s/1Zui-JkAdBrta3wc93UyDtA)/[S03](https://pan.baidu.com/s/1ueoxDpXGx5ERCdrTUHP7Hg)
 
+# 动漫2
+百度网盘账号（13588245977）
 
+[FateGrand Order -绝对魔兽战线巴比伦尼亚](https://pan.baidu.com/s/189q-F3YFqk_IL0zlU8Qbfg)
 
+[碧蓝航线 AzurLane](https://pan.baidu.com/s/1xE3044sj5Eq2c3-d2DNPbA)
+
+[刀剑神域 Alicization War of Underworld](https://pan.baidu.com/s/11xO5irJc_QKyBntcPgs6gA)
 
 
 

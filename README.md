@@ -13,11 +13,10 @@
 # 演讲
 百度网盘账号（x04680126）
 
-白岩松
 
-[《白说：读书、阅人、知时》](https://pan.baidu.com/s/1CZOgwPTSweJs_-XsVPkTRg)
+白岩松[《白说：读书、阅人、知时》](https://pan.baidu.com/s/1CZOgwPTSweJs_-XsVPkTRg)
 
-[《一刻演讲:光阴的故事》](https://pan.baidu.com/s/1vrQIla8IqfKni0_rRYeG3w)
+白岩松[《一刻演讲:光阴的故事》](https://pan.baidu.com/s/1vrQIla8IqfKni0_rRYeG3w)
 
 # 听书
 百度网盘账号（x04680126）

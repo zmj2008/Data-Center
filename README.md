@@ -1,6 +1,5 @@
-百度网盘账号（x04680126）
 
-# 课程
+# 课程  百度网盘账号（x04680126）
 
 #### 心理学
 [变态心理学](https://pan.baidu.com/s/1-3jmrgrD9POpVXCC15UNEQ)

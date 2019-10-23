@@ -35,11 +35,18 @@
 
 梦想改造家[S01]()/[S02]()/[S03]()/[S04]()/[S05](https://pan.baidu.com/s/1xYf-V7tjMH8R04H685_u3g&shfl=sharepset)/[S06](https://pan.baidu.com/s/1SAQt7H24n2arjsCg-HynIA&shfl=sharepset)
 
-
-
 # 小程序
 
 [中国象棋](https://www.lanzous.com/i66bmbg)
+
+# 常用软件
+百度网盘账号（13588245977）
+
+[ABBYY_FineReader_14](https://pan.baidu.com/s/1pR-7P34s31JCVUHGkxxU6w)
+
+[Tableau Desktop](https://pan.baidu.com/s/1wS-5PkqiFCpmHBuZvwOqeA)
+
+[天若OCR开源版](https://pan.baidu.com/s/1YPcnDss_XqtzxmDRjyB4Yg)
 
 # 纪录片
 百度网盘账号（x04680126）

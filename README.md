@@ -48,6 +48,8 @@
 
 [天若OCR开源版](https://pan.baidu.com/s/1YPcnDss_XqtzxmDRjyB4Yg)
 
+[Adobe Acrobat Reader DC](https://pan.baidu.com/s/1lJezIGFvQwmLpaS6KaH-XQ)
+
 # 纪录片
 百度网盘账号（x04680126）
 

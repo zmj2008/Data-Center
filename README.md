@@ -57,6 +57,10 @@
 
 [Adobe Acrobat Reader DC](https://pan.baidu.com/s/1lJezIGFvQwmLpaS6KaH-XQ)
 
+[Adobe 2020 套件](https://pan.baidu.com/s/1NG7HQ0cNQycg0IDFLWP-sw)
+
+[ACDSee Photo Studio Ultimate v2020 ](https://pan.baidu.com/s/1D8u-f62MRgBSzA6mj2edsg)
+
 # 纪录片
 百度网盘账号（x04680126）
 

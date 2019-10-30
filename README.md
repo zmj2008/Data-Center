@@ -61,6 +61,8 @@
 
 [ACDSee Photo Studio Ultimate v2020 ](https://pan.baidu.com/s/1D8u-f62MRgBSzA6mj2edsg)
 
+[pycharm-professional-2019.2](https://pan.baidu.com/s/1SSbiHkklokRANtow-KeAUA)
+
 # 纪录片
 百度网盘账号（x04680126）
 

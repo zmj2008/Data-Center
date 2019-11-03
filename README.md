@@ -34,6 +34,8 @@
 
 [《易中天品三国》](https://pan.baidu.com/s/1UDcQB_zYtz6uva7Zw-11Xg)
 
+[郭德纲21年相声精选](https://pan.baidu.com/s/157-KjcbkjEWQ4aJ6ypYssA)
+
 
 # 访谈
 百度网盘账号（x04680126）

@@ -68,6 +68,8 @@
 # 纪录片
 百度网盘账号（x04680126）
 
+[走进比尔盖茨](https://pan.baidu.com/s/1haOk0mUKvxneK3eHfNrGJA)
+
 #### CCTV
 [手术两百年](https://pan.baidu.com/s/1l8c2hgXPUxRoo8sFuaua_w)  
 
